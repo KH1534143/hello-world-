@@ -3,4 +3,4 @@ Just another repository
 
 Hello 
 how are you 
-the ine behind me, are you scared??
+the one behind me, are you scared??
